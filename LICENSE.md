@@ -1,4 +1,4 @@
-#  
+#  Evernote for macOS smart Script: real-time editing & note encryption is the best Evernote for macOS script, featuring real-time editing and note encryption. Safe, efficient, and
 
 
 
